@@ -1,4 +1,4 @@
-
+rare OBS Studio for macOS Tool | multi-cam-editing + sound-design offers the most advanced OBS Studio for macOS tool, with multi-cam-editing and sound-design. Ideal for
 
 
 
